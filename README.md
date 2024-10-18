@@ -59,7 +59,7 @@ Total Geral
 
 R$ 72.000 + R$ 10.500 + R$ 600 + R$ 5.000 = **R$ 88.100**
 
-]⏰ Prazo
+⏰ Prazo
 
 Marcos Intermediários:
 
